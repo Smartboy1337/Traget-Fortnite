@@ -1,4 +1,4 @@
-# Traget-Fortnite
+# Target-Fortnite
 
 
 Leaked because the "Developer" HarverL is scamming.
